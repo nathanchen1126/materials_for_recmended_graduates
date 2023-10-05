@@ -1,2 +1,2 @@
 # materials_for_recmended_graduates
-Materials for 2024fall_Graduate-Students
+2024届申请推荐免试研究生材料，适用于泛人文社科类专业，请勿用于商业用途。
