@@ -1,2 +1,2 @@
-# materials_for_recmended_graduates
-2024届申请推荐免试研究生材料，适用于泛人文社科类专业，请勿用于商业用途。
+# materials_for_recommended_graduates
+2024届申请推荐免试研究生材料，适用于泛人文社科类专业，请勿用于商业用途。z
